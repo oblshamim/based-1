@@ -7,3 +7,9 @@ base is power
 roll 45
 marhaba
 mirpir DOHS
+fake love
+true love
+good love
+123456
+@@@@
+yes no yes
