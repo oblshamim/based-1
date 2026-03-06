@@ -17,3 +17,4 @@ dont make it hard
 live your life my love
 i found a love
 i know you
+give me freedom
